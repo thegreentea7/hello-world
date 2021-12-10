@@ -1,1 +1,1 @@
-My name is Valeria Kulakova
+My name is Lera Kulakova
